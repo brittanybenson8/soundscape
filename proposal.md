@@ -1,1 +1,1 @@
-
+I will be using sound to tell the story of someone rushing to get to work on time.  I want to use sound to capture the anxious feeling of rushing around.  I also would like to add cometic moments that people could understand and relate with.
