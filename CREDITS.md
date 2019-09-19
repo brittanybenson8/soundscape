@@ -1,3 +1,5 @@
+# Credits
+
 1. "Yawn" by kgatto is licensed under CC BY 3.0
 1. "Blanket Throwing" by akelley6 is licensed under CC BY 3.0
 1. "Indoor Footsteps" by dkiller2204 is licensed under CC0 1.0
@@ -11,3 +13,5 @@
 1. "Female greetings" by bectec is licensed under CC0 1.0
 1. "female sigh" by morganveilleux is licensed under CC0 1.0
 
+# Permission
+1. All other sounds were recorded by myself.
